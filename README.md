@@ -3,6 +3,7 @@
 - 🔭 I’m currently working on [application for mobile](pas pour l'instant fils depute)
 
 - 🤝 I’m looking for help with **no one**
+https://64.media.tumblr.com/fd45633d39362dd34aa6d6d53a12db7a/ff708bbeee2e68a1-35/s500x750/8401384177bb2b804102f7de80aca82ec48f6726.gifv
 
 - 📫 How to reach me **discord potren#1010**
 
