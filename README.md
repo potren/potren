@@ -1,9 +1,9 @@
 <h3 align="center">A passionate frontend developer from India</h3>
 
-- 🔭 jdev une appli pour tel ca arrive fin hiver
+- 🔭 jencule le dev
 
-- 🤝 I’m looking for help with **no one**
-- 📫 How to reach me **discord potren#1010**
+
+- 📫 How to reach me **   twitter  @poo
 
 
 
